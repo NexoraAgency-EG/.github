@@ -162,7 +162,7 @@ For business inquiries, partnerships, or technology projects:
 
 🌐 **Website:** [nexora-portal.com](https://nexora-portal.com/)
 
-📱 **Instagram:** [@nexora_agency.ae](https://www.instagram.com/nexora_agency.ae/)
+📱 **Instagram:** [@nexora_agency.eg](https://www.instagram.com/nexora_agency.eg/)
 
 🔗 **LinkedIn:** [NEXORA IT Agency](https://www.linkedin.com/company/nexora-agency-ae/about/)
 
