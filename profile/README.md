@@ -164,7 +164,7 @@ For business inquiries, partnerships, or technology projects:
 
 📱 **Instagram:** [@nexora_agency.eg](https://www.instagram.com/nexora_agency.eg/)
 
-🔗 **LinkedIn:** [NEXORA IT Agency](https://www.linkedin.com/company/nexora-agency-ae/about/)
+🔗 **LinkedIn:** [NEXORA IT Agency](https://www.linkedin.com/company/nexora-agency-eg/about/)
 
 ---
 
